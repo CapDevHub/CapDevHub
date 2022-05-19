@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CapDevHub
+- 👀 I’m interested in FiveM
+- 🌱 I’m currently learning HTML
+- 💞️ I’m looking to collaborate
+- 📫 How to reach me --> cap#6886 or https://dsc.gg/cap.dev
